@@ -1,0 +1,1 @@
+Una plataforma de publicación de poemas para jóvenes y ya experimentados escritores que se sumergen cada día en el mundo de la poesía en prosa y/o en verso  en la que pueden publicar sus propias obras y leer los escritos de otros autores reconocidos nacional y mundialmente.
